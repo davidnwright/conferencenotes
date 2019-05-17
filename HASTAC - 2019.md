@@ -27,10 +27,26 @@ Notes from Session on Pedagogy.
 - Teach through resistance -- using the idea above. 
 - Interesting to see them leave the people in the room with an actionable -- "what will you do in your home institution to incorporate what we discussed?"
 
--- 
+--- 
 
 **Decolonizing In Australia**
 
+- [Robin DiAngelo](https://en.wikipedia.org/wiki/White_privilege#White_fragility) 
 - forum for learning and sharing, indignity. 
 - critical reflection -- revitalization
+- watch out for the black vs. white experience -- reductive to the other ways of speaking as legitimate
+- what the fuck is "emplacement"? - this has something to do with a gun battery -- odd terminology; I suppose they mean it to work as a kind of "where we're coming from"
+- what the fuck is ["positionality"?](https://en.wikipedia.org/wiki/Standpoint_theory)
+- do you want to be patient or pushy?
+
+---
+
+**Computer Science**
+
+- the domain sets the paradigm for learning
+- [**Susan Ambrose -- How Learning Works**](https://firstliteracy.org/wp-content/uploads/2015/07/How-Learning-Works.pdf)
+- Intellectual, social, Emotional, Physical space
+- Tsukada, Perreault [COMPLICATING HOW CLASSROOM CLIMATE WORKS: ADVANCING THE FRAMEWORK (2016)](https://www.kpu.ca/sites/default/files/Transformative%20Dialogues/TD.9.2.2_Tsukada%26Perreault_Advancing_the_Framework.pdf) -- page 8
+- Reciprocity / Witnessing
+- 
 - 
