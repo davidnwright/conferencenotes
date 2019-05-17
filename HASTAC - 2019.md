@@ -20,3 +20,17 @@ Notes from Session on Pedagogy.
 
 ---
 
+- What does it mean to create clubs and identities -- clubs, club tables, student groups -- through ethnicities?
+- colonized imagination
+- how might I teach resistance to the texts themselves... not what are the standards, but how do these texts not meet your standards? Resist the colonial reading and move more to the "new" reading. 
+- **"Projective Reading" -- read through resistance**
+- Teach through resistance -- using the idea above. 
+- Interesting to see them leave the people in the room with an actionable -- "what will you do in your home institution to incorporate what we discussed?"
+
+-- 
+
+**Decolonizing In Australia**
+
+- forum for learning and sharing, indignity. 
+- critical reflection -- revitalization
+- 
