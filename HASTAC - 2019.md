@@ -48,5 +48,20 @@ Notes from Session on Pedagogy.
 - Intellectual, social, Emotional, Physical space
 - Tsukada, Perreault [COMPLICATING HOW CLASSROOM CLIMATE WORKS: ADVANCING THE FRAMEWORK (2016)](https://www.kpu.ca/sites/default/files/Transformative%20Dialogues/TD.9.2.2_Tsukada%26Perreault_Advancing_the_Framework.pdf) -- page 8
 - Reciprocity / Witnessing
-- 
-- 
+- Foregrounding the voices within minority voices
+- [dotstorming](https://dotstorming.com/)
+- who is under-represented
+- tablets of stone:
+
+---
+
+**Move Slow and Decolonize**
+
+- foundations
+- contexts
+- research projects -- an outcome report
+-
+
+---
+
+
