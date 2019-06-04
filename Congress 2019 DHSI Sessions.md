@@ -42,7 +42,53 @@ Unsettling Colonial Cartography
 	- DISTORTIONS
 	- 
 - the fragility of the embodied space when we record -- has meaning to the listener, but not the originator. 
+
+This was a great session... with lots of stuff around mapping care, transience, mapping as (un)fixed, and a colonial practice... what can be mapped? 
+
+---
+
+**Session II: Archives and Anthologies**
+
+- AP POP - wasn't listening - baseball!
+
+---
+
+Micronarrative, Virtual Reality and Medium Specificity: "Circa 1948"
+
+- Cave version -- not available any longer
+- Social and Cultural Contradictions
+	- Class
+	- Power
+	- Corruption
+		- Role of Women (power)
+- In VR, the dot on the floor moves the video
+
+- glow where the dialogue takes place
+	- glows are ghost-like avatars
+	- nothing can change -- exploratory interaction, meaning can be discovered but not modified
+	- Ergodic experience, requires work
+	- missed dialogue
+	- refusal of closure - no resolution -- this merges with ideas in *Maus*
+	- user seeks some sort of narrative resolution without actual finding one.
+	- Stan Douglas -- look at him as an eletronic storytellor
+	- open-ended arc, results in search for the story...
+		- lack of narrative closure, presents historically complex period in time... lack of resolution means ideas, values, and reality take the foreground... 
+	
+	---
+	
+Matty - Stories of Loss: Fragility in the Archives - Endings
+
+
 - 
+	
+	
+	
+
+
+
+
+---
+
 - 
 - 
 - 
